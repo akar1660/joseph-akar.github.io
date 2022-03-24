@@ -1,1 +1,0 @@
-# joseph-akar.github.io
